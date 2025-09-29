@@ -9,7 +9,7 @@ Luego mejoró en seguridad y tecnología durante el siglo XX y hoy destaca por l
 4. Rolls-Royce Boat Tail – US$28 millones
 5. Bugatti La Voiture Noire – US$18-19 millones
 
-
+![Foto perfil](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYgelMSgLIA9Dg0qec7VggHQFq_RzjJyPdBg&s)
 
 ## Los coches más baratos de 2025
 
@@ -18,3 +18,6 @@ Luego mejoró en seguridad y tecnología durante el siglo XX y hoy destaca por l
 3. MG ZS - 14390€
 4. Fiat Panda - 14500€
 5. Hyundai i10 - 14890€
+
+![Foto perfil](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT8tWXGXq4f0rF1DXxCLjAkGTeWrmYbo73ySQ&s)
+
